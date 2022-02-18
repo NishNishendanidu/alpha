@@ -93,26 +93,7 @@ HAVE A FUN!
 ```
 
 
-## 📛 WATCH How To Make Sinhala WhatsApp Bot With Full Tutorial || Tutorial 02 || Alpha Wa Bot VIDEO CLICK This Post📛
-<div>
-	<a href="https://www.youtube.com/watch?v=9kJlE9RYKeo">
-<img src="https://telegra.ph/file/3e7b77ce00c3fb8900452.jpg" width="200"></br></a>
-</div>
+ 
 
 
-## ⎝🛡️ ALPHA 🛡️⎠ Team Offcial
 
-<table>
-										<tbody>
-											<tr>
-												<td><a href="https://duanf0484.wixsite.com/achi-bro-lk"><img src="https://telegra.ph/file/652c80bc6ca6cefb89971.jpg" width="200" height="200" alt="Achi Fernando"></a></td>
-												<td><a href="https://github.com/Dark-Knight-nishen"><img src="https://telegra.ph/file/75ff82ccd0a33f367159e.jpg" width="200" height="200" alt="nishen"></a></td>
-												<
-										
-									
-### License
-This project is protected by the `GNU General Public License v3.0.`
-Do not edit copyright messages!
-
-### Disclaimer
-`WhatsApp` name, its variations and logo are registered trademarks on Facebook. We have nothing to do with the registered trademark.
